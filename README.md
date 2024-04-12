@@ -1,7 +1,5 @@
 - 👋 Hi, I’m @TeplanGergo
-- 👀 I’m interested in amongus
 - 🌱 I’m currently learning programing
-- 💞️ I’m looking to collaborate with amongus
 - 📫 How to reach me: I am  not going to tell you (:
 - 😄 Pronouns: he
 - ⚡ Fun fact: I like Among us
