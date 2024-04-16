@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @TeplanGergo
-- 🌱 I’m currently learning programing
 - 📫 How to reach me: I am  not going to tell you (:
 - 😄 Pronouns: he
 - ⚡ Fun fact: I like Among us
